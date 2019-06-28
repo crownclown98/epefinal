@@ -8,5 +8,6 @@ es unprograma sencillo y amigable con el usuario
 
 :smirk:
 
+:stuck_out_tongue_winking_eye:
 
-stuck_out_tongue_winking_eye
+:flushed:
